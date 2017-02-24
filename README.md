@@ -12,7 +12,7 @@ Mua hàng online tiết kiệm với mã giảm giá Lazada, Mã giảm giá Tik
 
 Hay các khuyến mãi giá vé Tour Du Lịch, khách sạn giá rẻ tại:
 * Khuyến mãi iVIVU, mã giảm giá iVIVU (http://sieucoupon.com/store/ma-giam-gia-ivivu/)
-* Khuyến mãi MyTour, mã giảm giá MyTour (http://sieucoupon.com/store/ma-giam-gia-mytour/)
+* Khuyến mãi MyTour, mã giảm giá MyTour (http://sieucoupon.com/store/ma-giam-gia-my-tour/)
 
 Hãy luôn là người tiêu dùng tiết kiệm với Siêu Coupon nhé bạn.
 
